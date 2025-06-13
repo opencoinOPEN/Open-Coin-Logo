@@ -1,1 +1,0 @@
-# Open-Coin-Logo
